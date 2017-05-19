@@ -1,1 +1,0 @@
-# clarkdesign_v00
